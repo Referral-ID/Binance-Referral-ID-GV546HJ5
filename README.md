@@ -8,9 +8,9 @@ When you sign up for Binance using a referral code, you gain access to exclusive
 
 Source: https://www.binance.com/en/square/post/22207323405594
 
-### Exclusive Benefits with Referral Code: **P8DEY0JB**
+### Exclusive Benefits with Referral Code: **GV546HJ5**
 
-By using the referral code **P8DEY0JB** during registration, you unlock:
+By using the referral code **GV546HJ5** during registration, you unlock:
 
 - **10% Lifetime Discount on Trading Fees**: This means every time you trade, you'll pay 10% less in fees compared to standard rates.
 
@@ -23,7 +23,7 @@ Getting started is straightforward. Here's how you can claim your bonuses:
 ### 1. Register on Binance:
 - Visit the [Binance website](https://www.binance.com) and click on "Register."
 - Enter your email and create a strong password.
-- During this process, input the referral code **P8DEY0JB** in the designated field to ensure you receive the associated benefits.
+- During this process, input the referral code **GV546HJ5** in the designated field to ensure you receive the associated benefits.
 
 ### 2. Complete KYC Verification:
 - After registering, you'll need to verify your identity.
@@ -44,4 +44,4 @@ While it's tempting to jump on the highest discount offer, some promotions might
 
 ## In Conclusion
 
-Using the referral code **P8DEY0JB** during your Binance registration is a smart move to kickstart your trading journey with added benefits. You'll enjoy a lifetime discount on trading fees and a substantial trading fee credit to boost your trading activities. Remember, always opt for referral codes that offer transparent and valuable perks to enhance your cryptocurrency trading experience.
+Using the referral code **GV546HJ5** during your Binance registration is a smart move to kickstart your trading journey with added benefits. You'll enjoy a lifetime discount on trading fees and a substantial trading fee credit to boost your trading activities. Remember, always opt for referral codes that offer transparent and valuable perks to enhance your cryptocurrency trading experience.
