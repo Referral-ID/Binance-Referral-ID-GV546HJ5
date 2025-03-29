@@ -12,7 +12,7 @@ Source: https://www.binance.com/en/square/post/22207323405594
 
 By using the referral code **GV546HJ5** during registration, you unlock:
 
-- **10% Lifetime Discount on Trading Fees**: This means every time you trade, you'll pay 10% less in fees compared to standard rates.
+- **20% Lifetime Discount on Trading Fees**: This means every time you trade, you'll pay 20% less in fees compared to standard rates.
 
 - **$100 USDT Trading Fee Credit**: After completing certain steps like KYC verification and making an initial deposit, you'll receive a $100 credit to offset future trading fees.
 
@@ -36,7 +36,7 @@ Getting started is straightforward. Here's how you can claim your bonuses:
 
 ### 4. Start Trading:
 - Once your account is set up and verified, begin trading.
-- The 10% lifetime discount on trading fees will automatically apply to your transactions.
+- The 20% lifetime discount on trading fees will automatically apply to your transactions.
 
 ## A Word of Caution
 
